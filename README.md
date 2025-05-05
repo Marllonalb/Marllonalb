@@ -33,7 +33,7 @@
 🔗 **𝐖𝐡𝐞𝐫𝐞 𝐭𝐨 𝐟𝐢𝐧𝐝 𝐦𝐞:**
 
 - [LinkedIn](https://www.linkedin.com/in/marllon-albuquerque)
-- [Email](marllonalbuq@gmail.com)
+- Email: marllonalbuq@gmail.com
 
 ---
 
@@ -74,6 +74,6 @@
 🔗 **𝐎𝐧𝐝𝐞 𝐦𝐞 𝐞𝐧𝐜𝐨𝐧𝐭𝐫𝐚𝐫:**
 
 - [LinkedIn](https://www.linkedin.com/in/marllon-albuquerque-16ab771a7/)
-- [Email](marllonalbuq@gmail.com)
+- Email: marllonalbuq@gmail.com
 
 ---
